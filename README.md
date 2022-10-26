@@ -4,3 +4,5 @@ Kotlin & Coffee
 find me on [twitter](https://twitter.com/yrfriendkatie)
 
 listen to my [music](https://soundcloud.com/clementine-park/popular-tracks)
+
+pick up some [trash](https://katiedotson.github.io/)
